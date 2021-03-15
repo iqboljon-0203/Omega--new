@@ -1,0 +1,2 @@
+# Omega  new
+ For homework
